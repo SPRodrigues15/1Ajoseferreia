@@ -1,0 +1,2 @@
+# 1Ajoseferreia
+pensamento computacional
